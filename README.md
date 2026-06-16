@@ -37,7 +37,7 @@ Solan, Himachal Pradesh, India
 
 ## 🔗 Connect With Me
 
-LinkedIn: linkedin.com/in/diyashama-aiml
+LinkedIn: linkedin.com/in/DIYASHAMA-AIML
 
 
 <!--
